@@ -5,4 +5,4 @@
 Я почти что Джун
 Или буду им Soon!
 
-Drawn_wallpapers_Pirate_019073_.jpg
+https://drive.google.com/file/d/1jFPrhqVze4Gg4INTkb0r8y0BuL18j-Z2/view?usp=sharing
