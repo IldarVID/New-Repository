@@ -6,5 +6,5 @@
 * Я почти что Джун
 * Или буду им Soon!
 
-![пикча](C:\Users\Ильдар\Desktop\НЕТОЛОГИЯ\GIT\ДЗ GIT hub\New Repository)
+![пикча](https://github.com/IldarVID/New-Repository/blob/main/Drawn_wallpapers_Pirate_019073_.jpg)
 
